@@ -1,1 +1,6 @@
-# duh_santozz
+# ✮ SOU ESTUDANTE DO ENSINO MÉDIO
+★ESTOU ESTUDANDO NO https://www.alura.com.br/
+☆ELA/DELA
+✶ENTRE EM CONTATO COMIGO:Dulce.almeida@escola.pr.gov.br
+
+  duh_santozz
